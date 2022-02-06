@@ -2,7 +2,7 @@
 
 Cracked file for minecraft bedrock edition
 
-[Note: it please use this on your own risk, im not responsible for any problems!]
+[Note: please use this on your own risk, im not responsible for any problems!]
 
 ## ✨ Features
 
